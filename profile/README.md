@@ -44,7 +44,7 @@ One human. The full stack — product strategy, system design, code, ops, suppor
 
 [Omkar Jaliparthi](https://github.com/omkarjaliparthi) · 8+ years PM/TPM · MS CS · San Jose, CA.
 
-Open to **Senior PM** · **Founding PM** · **Principal TPM** roles. Will relocate.
+Open to **Founding PM** · **Senior PM** · **AI Platform PM** · **Senior TPM** roles. Will relocate. US work-authorized.
 
 ---
 
